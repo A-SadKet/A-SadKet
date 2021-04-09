@@ -1,5 +1,5 @@
 I’m @A-SadKet, A Sad Ket.
-You aren't gonna find a whole lot of public stuff here, go look at my [twitter] or my [deviantart].
+You aren't gonna find a whole lot of public stuff here, go look at my [twitter] or my [deviantart] instead.
 
 [twitter]: https://twitter.com/A_SadKet
 [deviantart]: https://www.deviantart.com/sadket
